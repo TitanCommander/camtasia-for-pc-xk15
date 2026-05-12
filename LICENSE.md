@@ -1,4 +1,4 @@
-# 
+# Enhance Camtasia for PC | Camtasia for Windows with vip Camtasia for PC | Camtasia for Windows Extension | time-remapping + multi-cam-editing, the #1 extension. Includes
 
 
 
